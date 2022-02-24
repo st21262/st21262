@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @st21262
-- 👀 I’m interested in ...
+- 👀 I’m interested in movies, video games, going to the gym, kpop dance and playing in a band
 - 🌱 I’m currently learning computer programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me st21262@ormiston.school.nz
